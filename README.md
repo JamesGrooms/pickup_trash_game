@@ -1,0 +1,1 @@
+# pickup_trash_game
